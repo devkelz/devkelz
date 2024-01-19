@@ -1,6 +1,3 @@
- <article class="markdown-body entry-content container-lg f5" itemprop="text"><p dir="auto"><a target="_blank" rel="noopener noreferrer" href="https://media.discordapp.net/attachments/1191888573759246487/1195606822111953006/New_Project_1.png?ex=65b49a9f&is=65a2259f&hm=91163a9d16c14d2ad539787305d8c4d0d8420bb6740e7e19887750be704e8445&=&format=webp&quality=lossless&width=1025&height=230"><img src="https://media.discordapp.net/attachments/1191888573759246487/1195606822111953006/New_Project_1.png?ex=65b49a9f&is=65a2259f&hm=91163a9d16c14d2ad539787305d8c4d0d8420bb6740e7e19887750be704e8445&=&format=webp&quality=lossless&width=1025&height=230" width="100%" style="max-width: 100%;"></a></p>
-<p align="center" dir="auto">
-
 🌊👋 Hey there! My name is Dev_Kelz and I work on small projects like websites just for fun. I have developed for Hexamity, Chinobe, Bloxoria and quite a few more sandbox games ranging from the years 2021-2023. 
 - I am for hire, just give me a DM on discord @ dev_kelz
 - Will *not* respond to likely bullshit, only ping or DM for serious questions or to hire.
