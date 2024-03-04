@@ -12,7 +12,7 @@ Over the pandemic when Covid was breaking out I taught myself how to script in t
 - I joined the site brick-hill.com in 2017, it was much more fun before the owner of Alexander Dunn got exposed as a pedophile. <br>
 - I was the richest user and person with the most forum posts in Vistora (Old sandbox site from 2021. Very fun. Rip Vistora) <br>
 - I have contributed to 200M+ visits on Roblox. <br>
-- As of January 13th, 2024, I am locked out of my main Roblox acc lel <br>
+- As of January 13th, 2024, I am locked out of my main Roblox acc lel ( Update March 4th 2024, i got back in :D )<br>
 - I have had over 2 years of Discord Nitro in total <br>
 <br>
 more soon idfk i put this together very quickly <br>
